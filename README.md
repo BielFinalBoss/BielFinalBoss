@@ -10,4 +10,4 @@ My name is Gabriel
 
 gabriel.florentino@escola.pr.gov.br
 
-![](https://media.tenor.com/7KTms42M9RUAAAAC/berserk-guts.gif)
+![](https://media.tenor.com/VLao5JKHOEwAAAAC/chamber-valorant-valorant-chamber.gif)
